@@ -1,5 +1,5 @@
 # 💫 LukaHosting:
-🔭 We Are The Best and Speed <br>💬 Contact : lukahost@lukahost.net<br>⚡ LukaHosting.Com / Net
+🔭 We Are The Best and Speed <br>💬 Contact : lukahost@lukahost.net<br>⚡ Lukahosting.Com
 
 
 ## 🌐 Socials:
